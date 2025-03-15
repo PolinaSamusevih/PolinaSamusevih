@@ -1,4 +1,4 @@
-## Hi there 👋
+## I will bring you a wanderer 👋
 
 <!--
 **PolinaSamusevih/PolinaSamusevih** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
